@@ -2,8 +2,8 @@
 06 Task Performance Task in  Application Design and Development
 
 **What is my favourite tv series?**
-> my favourite tv series is Stranger Things in Netflix, also I love anime series like Demon Slayer
+*my favourite tv series is All Of Us Are Dead in Netflix.r*
 
 **What is my favourite movie?**
-> for me I love horror movies so, my favourite movies are Obsessions, Scream and Final Destination
+*my favourite movies is The Purge all of the collection of them*
 
